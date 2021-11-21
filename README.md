@@ -1,2 +1,0 @@
-# findmyteacher1
-original
